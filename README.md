@@ -53,4 +53,4 @@ Contribuições são bem-vindas! Se você deseja melhorar este projeto, sinta-se
 
 ## Contato
 
-Para mais informações ou dúvidas, entre em contato pelo [WhatsApp](https://
+Para mais informações ou dúvidas, entre em contato pelo [WhatsApp](https://wa.me/11954119507)
